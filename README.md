@@ -1,1 +1,0 @@
-# tg-patreon-link
